@@ -4,4 +4,4 @@
 
 ![](https://i.postimg.cc/6pqYC1Tn/Untitled790-20260824202230.png)
 
-${\textsf{\color{#76778e}no night can't survive without a flashlight of hope}}$
+${\textsf{\color{#76778e}no night can't survive with just a flashlight of hope}}$
